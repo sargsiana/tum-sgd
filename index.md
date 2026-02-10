@@ -7,8 +7,7 @@ Technical University of Munich
 Associate Professorship of Didactics in Sport and Health
 
 ## Contact
-Email: anahit.sargsyan@tum.de
-
+Email: anahit.sargsyan@tum.de  
 Professor's email: filip.mess@tum.de
 
 ## About us
