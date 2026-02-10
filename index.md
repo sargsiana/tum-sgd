@@ -8,6 +8,7 @@ Associate Professorship of Didactics in Sport and Health
 
 ## Contact
 Email: anahit.sargsyan@tum.de
+
 Professor's email: filip.mess@tum.de
 
 ## About us
